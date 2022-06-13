@@ -1,3 +1,1 @@
-#ALina hey 2.0
-
-## contacts
+tap the link to open CV
